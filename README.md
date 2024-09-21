@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @phoenixasherofficial A.K.A Simon
+- 👀 I’m interested in hackers and coders
+- 💞️ I’m looking to collaborate!
+- 📫 How to reach me: julybibasherphoenix@gmail.com
+- 😄 Pronouns: Him/His
+- ❌🌈 Fun Fact: I dislike LGBTQ+
